@@ -11,7 +11,7 @@
 
 ❤️‍🔥I thrive in dynamic environments where I can leverage my skills to create innovative applications and systems. 
 
-🎯My goal is to contribute effectively to the tech community and collaborate on projects that push the boundaries of what’s possible. ✨
+🎯My goal is to contribute effectively to the tech community and collaborate on projects that push the boundaries of what’s possible.✨
 
 **Contact Me** 
 
